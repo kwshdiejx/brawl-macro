@@ -3,7 +3,7 @@ brawlhalla infinite combo macro for katars.
 
 
 made with keyran so download it
-also script is very powerful like the infinite combo, watch me video on yt
+also script is very powerful like the infinite combo, watch my video on yt
 
 
 ::::
